@@ -9,4 +9,4 @@ Hope you enjoy the work!
 
 Best regards,
 
-Roméo - Noelia - Beatriz - Maylis 
+Roméo - Noelia - Beatriz - Maylis - Edgar
